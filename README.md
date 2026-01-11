@@ -1,9 +1,9 @@
 <p align="center">   
  ‎<p align="center">
-  - <a href="https://pronouns.cc/@Sharooh">prns.cc</a> -  
+  - <a href="https://pronouns.cc/@faemoose">prns.cc</a> -  
    <a href="https://sharooh.atabook.org/">atabook </a>  -
    <a href="https://open.spotify.com/user/31ie2jrxrsiot5akk64mq6ixot3q">my spotify </a> -  
-   <a href="https://sharooh.straw.page/">strawpage </a>  -
+   <a href="https://faemoose.straw.page">strawpage </a>  -
     ‎ ‎ ‎ ‎‎<p align="center">
     ୨୧ 
       
