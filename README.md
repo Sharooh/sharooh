@@ -2,7 +2,7 @@
  ‎<p align="center">
   - <a href="https://pronouns.cc/@faemoose">prns.cc</a> -  
    <a href="https://sharooh.atabook.org/">atabook </a>  -
-   <a href="https://rentry.co/ThatMidnight_">rentry </a> -  
+   <a href="https://rentry.co/notblueleaf">rentry </a> -  
    <a href="https://faemoose.straw.page">strawpage </a>  -
     ‎ ‎ ‎ ‎‎<p align="center">
     ୨୧ 
